@@ -28,3 +28,4 @@ Animes I want to write a blog about:
 - Wind breaker 
 - Bartender glass of god 
 - 91 days 
+- Ninja Kaumi (first 5 episodes were SO good)
