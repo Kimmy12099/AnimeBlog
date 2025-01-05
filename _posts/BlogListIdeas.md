@@ -1,0 +1,30 @@
+Animes I want to write a blog about: 
+- Blue Box 
+- Orb: On the movements of the earth
+- Attack on titan (first every anime)
+- Your lie in april (Anime that changed me forever)
+- The Promised Neverland (One of the best S1 I have seen)
+- Hajime No Ippo (Anime that inspires you to work harder)
+- Yuru camp (THE BEST relaxing anime)
+- Erased (one of the best 9 episodes in my life, and how it got ruined)
+- Look Back (Beautifully written anime)
+- What 5 Centimeters per second means to me
+- What a Place further than the universe means to me
+- Demon Slayer... What a rollercoaster of an anime 
+- Jujustu Kaisen One of the best animes
+- Jellyfish Can't Swim at Night (Such a stunning anime visually, but 2nd half seems so rushed)
+- Insomanics after school (cute slice of life that seems geniune love)
+- Oshi no Ko (the dark side of entertainment industry)
+- Ping pong the animation (The unique artstyle)
+- Solo levelling (Why I lowkey think its overhyped)
+- Garden of words (beautiful looking forest)
+- Heroic Legends of Arslan (Nice little historic type anime, but wish they kept producing)
+- Your Name (iconic film, obsessed with visuals and music)
+- Weathering with you (Another iconic film, obsessed with visuals and music)
+- Suzume (The anime I was waiting for for 3 years)
+- Heavenly Delusion 
+- Tunnel to summer, exit of goodbyes 
+- Tower of God 
+- Wind breaker 
+- Bartender glass of god 
+- 91 days 
