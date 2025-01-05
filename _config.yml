@@ -17,8 +17,7 @@ linkedin_username: "iankim9"
 #########################################################################################
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
 #########################################################################################
-theme: "minima":
-  skin: "dark"
+theme: "minima"
 
 rss: rss
 
