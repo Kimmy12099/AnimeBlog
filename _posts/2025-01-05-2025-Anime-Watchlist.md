@@ -27,3 +27,14 @@ Anyways, onto my watchlist for anime in 2025. I've got to say that there are SO 
 
 **Fall 2025**
 - Spy x Family S3 
+
+
+**Uncomfirmed What Season**
+- Chainsaw Man - Reze Arc 
+- City the Animation 
+- Demon Slayer: Infinity Castle 
+- Gachiakuta 
+- Guimi Zhi Zhu 
+- Kaoru Hana Wa Rin to Saku (The Fragrant Flower Blooms With Dignity) 
+- Lazarus 
+- Witch Hat Atelier 
